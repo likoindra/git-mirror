@@ -1,0 +1,1 @@
+file sudah bisa di mirroring 
